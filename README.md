@@ -5,4 +5,5 @@
 - Para dúvidas ou perguntas, entre em contato:
  _0000111440181xsp@al.educacao.sp.gov.br_ 📩📌
 
+
 ![](https://media1.tenor.com/m/Pq2YmXIRgngAAAAC/scream-toad.gif)
